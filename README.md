@@ -1,4 +1,4 @@
-have this toast,
+have this toast..
 
 consider this as an appreciation. ![0a8b9c5f](https://github.com/user-attachments/assets/a2300078-8033-47b7-8e39-28b9a2c3cca9)
 
